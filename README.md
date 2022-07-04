@@ -1,5 +1,3 @@
-# Mysummertraining21BCS1918-Disney-web-page-clone-
-
 
 ## Where to find everything
 
